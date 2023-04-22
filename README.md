@@ -7,7 +7,7 @@ wy561166.vip
 
 ##⭐️👉访问最新地址2：https://wy3252.vip
 
-##⭐️👉访问最新地址3：https:/wy3253.vip
+##⭐️👉访问最新地址3：https://wy3253.vip
 
 ##⭐️👉访问最新地址3：https://m.wy3253.vip
 
